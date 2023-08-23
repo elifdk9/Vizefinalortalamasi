@@ -1,0 +1,2 @@
+# Vizefinalortalamasi
+Vize,Final ortalaması
